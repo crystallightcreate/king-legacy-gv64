@@ -1,4 +1,4 @@
-# 
+# new Scripts for king legacy offers the most advanced king legacy Script, with auto-farm and no clip. Perfect for dominating any match.
 
 
 
